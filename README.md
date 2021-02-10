@@ -8,7 +8,7 @@
    tushardeepak22@gmail.com
    
 ## All todo data (including images) are safe and under good privacy
-   No data lose
+   No data loss, 
    Full privacy
    
 ## Keep Slogger clean
