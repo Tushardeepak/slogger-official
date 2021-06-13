@@ -6,7 +6,8 @@
    2) Add some images to make things easy.
 
 ## Feel to to contact/collaborate
-   tushardeepak22@gmail.com
+   Drop a mail at
+   withslogger@gmail.com
    
 ## All todo data (including images) are safe and under good privacy
    No data loss, 
